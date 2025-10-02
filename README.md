@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **vianiloboultimate@gmail.com**
 
-- ⚡ Fun fact **I’m also an artist — I love painting when I’m not coding!**
+- ⚡ Fun fact **I’m also an artist-I love painting when I’m not coding!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
